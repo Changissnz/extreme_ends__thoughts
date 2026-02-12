@@ -11,3 +11,4 @@ Here are some thoughts a character in this first image would voice.
 - "A parent is as good as a wealthy person or an institutionalist. And both kinds should die on a bad day."
 - "Tell you what. If everything is a scandal or needs investigation, how about I kill the investigators as well as the alleged victims and perpetrators?" 
 - "Everyone trying to make money off the lows should get violently murdered." 
+- "If so much work gets done, but the official theory and record, theory for the record, is equilibrium, maybe that would change if some people got killed." 
