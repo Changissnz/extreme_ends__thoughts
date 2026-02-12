@@ -13,3 +13,4 @@ Here are some thoughts a character in this first image would voice.
 - "Everyone trying to make money off the lows should get violently murdered." 
 - "If so much work gets done, but the official theory and record, theory for the record, is equilibrium, maybe that would change if some people got killed." 
 - "Thanks Russian, for trying to be a hero and stick up for those criminals, because they're Jews, right? Now I'm going to kill you instead of them. You can be their Jesus now." 
+- "Thanks China man, for continuing to do business with the criminal Americans. Now half of Latin America is in poverty. I'm debating whether to kill them or you." 
