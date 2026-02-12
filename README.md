@@ -2,7 +2,7 @@
 
 Here are some thoughts a character in this first image would voice. 
 
-![image info](./images/gtt_flow_diagram.PNG)
+![image info](Gemini_Generated_Image_nysq7enysq7enysq.png)
 
 - "The guaranteed way to stop dealing with micro-aggressions is to kill the micro-aggressor." 
 - "An implication of Heisenberg's Uncertainty Principle: maybe some people should get killed if they obsess over some other people too hard,it becomes threatening."
