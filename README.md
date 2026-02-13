@@ -25,3 +25,5 @@ The point of this quotes project is not about humor or morality.
 - "The last thing I want to deal with is some loser fat fuck American calling me a coward. I should kill them if I see them out in public." 
 - "If some people can make up excuses to torture and rob, why would I need excuses to not kill? Some things must be inevitable, even with these simpletons' sick reverse psychology." 
 - "Oh, so I'm stupid. I'm retarded. But at least I won't the one getting violently murdered by myself." 
+- "How can an American be trusted to honor the rules? There's too many of them, different colors and sizes. I think an American's honor is only as good as their defense racket, which they insist on owning and ruling over. So to kill an American would not be
+  honorable, according to them. But to kill an American might be the greatest honor in today's world driven sick and poor and crazy, all because of them." 
