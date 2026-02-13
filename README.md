@@ -29,4 +29,5 @@ The point of this quotes project is not about humor or morality.
   honorable, according to them. But to kill an American might be the greatest honor in today's world driven sick and poor and crazy, all because of them."
 - "Instead of playing tug-of-war over the truth with them, which they'll just try to whitewash in their favor right after, I should kill them instead."
 - "Instead of putting my effort to mocking and trolling leftists, like a stupid Catholic, I could put my energy to better use, killing both the leftist and stupid Catholic."  
-- "American society is filled with thieves, do-gooder dumb asses, and traitors. Trust is dead. How easy would it be to single them out and kill them one by one?" 
+- "American society is filled with thieves, do-gooder dumb asses, and traitors. Trust is dead. How easy would it be to single them out and kill them one by one?"
+- "The cops struck a deal with the mob, and they did that because the economy went down the gutter. So there's no more honest work to take up anymore. The best course of action would be to kill both of them, since they believe so much in Mexican standoffs." 
