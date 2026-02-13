@@ -17,3 +17,4 @@ Here are some thoughts a character in this first image would voice.
 - "If they can't do any real work besides from mocking and imitating people, maybe they should get killed doing what they love." 
 - "Maybe another large terrorist attack by a foreign adversary should happen in America. Then half the Big Security business would be put out of work for incompetence. And it would give people like me an opportunity to kill some of them." 
 - "The Anglos are playing a commercial war. They're placing Indians and Pakis as corporate frontmen. So I'm debating whether to bomb their facilities during broad daylight, while those 'innocent' brown people are working, or at night." 
+- "The Americans that have committed a bunch of corporate crimes, as well as members of the American mobs, should be killed for causing these economically uncertain times."
