@@ -24,3 +24,4 @@ The point of this quotes project is not about humor or morality.
 - "Every week, the Americans cook up the books for a new menace. When their domestic affairs are peaceful, they blame other countries. When their domestic affairs aren't, they blame immigrants and the poor. Maybe killing all of them would put everyone out of their misery."
 - "The last thing I want to deal with is some loser fat fuck American calling me a coward. I should kill them if I see them out in public." 
 - "If some people can make up excuses to torture and rob, why would I need excuses to not kill? Some things must be inevitable, even with these simpletons' sick reverse psychology." 
+- "Oh, so I'm stupid. I'm retarded. But at least I won't the one getting violently murdered by myself." 
