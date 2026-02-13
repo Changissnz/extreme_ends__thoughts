@@ -38,4 +38,6 @@ pay extra to attend a circus, once in a big while.
 - "The Jew group was the one dealing narcotics. They were sourcing it from Turkey, China and Afghanistan. When people went snooping around, they turned paranoid and went to the KKK and defamation league for help. And they made money out of it.
   It's like the law doesn't work. So there is a choice. Kill the Jews or kill the police for this big screw-up." 
 - "Since money has turned so fiat in recent years, the only solution to settle the score would be to kill everyone involved. And that includes a lot of the mob... unless corporate wants to pay up, which they do, but only when they're being extorted by
-  the mob." 
+  the mob."
+- "Our numbers are low. We will have to pretend to be pro-Chinese and work with Chinese. Once we have established more connections to their businesses, we will deal with them then. But for now, we will act pro-Chinese and work with Chinese. Our goal for the
+  time being: kill any Americans that get in our way." 
