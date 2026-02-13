@@ -37,3 +37,5 @@ pay extra to attend a circus, once in a big while.
   would it take to cure the dead from a bomb detonation?"
 - "The Jew group was the one dealing narcotics. They were sourcing it from Turkey, China and Afghanistan. When people went snooping around, they turned paranoid and went to the KKK and defamation league for help. And they made money out of it.
   It's like the law doesn't work. So there is a choice. Kill the Jews or kill the police for this big screw-up." 
+- "Since money has turned so fiat in recent years, the only solution to settle the score would be to kill everyone involved. And that includes a lot of the mob... unless corporate wants to pay up, which they do, but only when they're being extorted by
+  the mob." 
