@@ -26,4 +26,5 @@ The point of this quotes project is not about humor or morality.
 - "If some people can make up excuses to torture and rob, why would I need excuses to not kill? Some things must be inevitable, even with these simpletons' sick reverse psychology." 
 - "Oh, so I'm stupid. I'm retarded. But at least I won't the one getting violently murdered by myself." 
 - "How can an American be trusted to honor the rules? There's too many of them, different colors and sizes. I think an American's honor is only as good as their defense racket, which they insist on owning and ruling over. So to kill an American would not be
-  honorable, according to them. But to kill an American might be the greatest honor in today's world driven sick and poor and crazy, all because of them." 
+  honorable, according to them. But to kill an American might be the greatest honor in today's world driven sick and poor and crazy, all because of them."
+- "Instead of playing tug-of-war over the truth with them, which they'll just try to whitewash in their favor right after, I should kill them instead." 
