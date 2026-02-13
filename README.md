@@ -32,4 +32,6 @@ The point of this quotes project is not about humor or morality.
 - "American society is filled with thieves, do-gooder dumb asses, and traitors. Trust is dead. How easy would it be to single them out and kill them one by one?"
 - "The cops struck a deal with the mob, and they did that because the economy went down the gutter. So there's no more honest work to take up anymore. The best course of action would be to kill both of them, since they believe so much in Mexican standoffs." 
 - "Maybe the university should get bombed. There's evidence their partner companies were illegally selling drugs to people there. Then those companies would use that as legal cause to conduct poison experiments on them, as part of drug trials. How much drugs
-  would it take to cure the dead from a bomb detonation?" 
+  would it take to cure the dead from a bomb detonation?"
+- "The Jew group was the one dealing narcotics. They were sourcing it from Turkey, China and Afghanistan. When people went snooping around, they turned paranoid and went to the KKK and defamation league for help. And they made money out of it.
+  It's like the law doesn't work. So there is a choice. Kill the Jews or kill the police for this big screw-up." 
