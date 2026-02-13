@@ -31,3 +31,5 @@ The point of this quotes project is not about humor or morality.
 - "Instead of putting my effort to mocking and trolling leftists, like a stupid Catholic, I could put my energy to better use, killing both the leftist and stupid Catholic."  
 - "American society is filled with thieves, do-gooder dumb asses, and traitors. Trust is dead. How easy would it be to single them out and kill them one by one?"
 - "The cops struck a deal with the mob, and they did that because the economy went down the gutter. So there's no more honest work to take up anymore. The best course of action would be to kill both of them, since they believe so much in Mexican standoffs." 
+- "Maybe the university should get bombed. There's evidence their partner companies were illegally selling drugs to people there. Then those companies would use that as legal cause to conduct poison experiments on them, as part of drug trials. How much drugs
+  would it take to cure the dead from a bomb detonation?" 
