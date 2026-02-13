@@ -3,7 +3,9 @@
 Here are some thoughts a character in this first image would voice. 
 
 **DISCLAIMER**  
-The point of this quotes project is not about humor or morality. 
+The point of this quotes project is not about humor or morality. Since comedy is dead in America, I'd thought these quotes would be of some 
+value to today's American context. See, comedic material is only funny in some settings. No one wants to live in a circus. Rather, people 
+pay extra to attend a circus, once in a big while. 
 
 ![image info](Gemini_Generated_Image_nysq7enysq7enysq.png)
 
