@@ -2,6 +2,9 @@
 
 Here are some thoughts a character in this first image would voice. 
 
+**DISCLAIMER**  
+The point of this quotes project is not about humor or morality. 
+
 ![image info](Gemini_Generated_Image_nysq7enysq7enysq.png)
 
 - "The guaranteed way to stop dealing with micro-aggressions is to kill the micro-aggressor." 
