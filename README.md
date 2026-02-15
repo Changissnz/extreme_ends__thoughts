@@ -7,6 +7,9 @@ The point of this quotes project is not about humor or morality. Since comedy is
 value to today's American context. See, comedic material is only funny in some settings. No one wants to live in a circus. Rather, people 
 pay extra to attend a circus, once in a big while. 
 
+The recurring theme of these quotes is bloodthirst. Bloodthirst is usually typified as a wildly inappropriate subject for humor. There's 
+always a choice with drinking the kool-aid. 
+
 ![image info](Gemini_Generated_Image_nysq7enysq7enysq.png)
 
 - "The guaranteed way to stop dealing with micro-aggressions is to kill the micro-aggressor." 
