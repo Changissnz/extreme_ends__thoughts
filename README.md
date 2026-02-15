@@ -1,4 +1,5 @@
 # Extreme Ends: Thoughts
+## concluded: 2/14/26 
 
 Here are some thoughts a character in this first image would voice. 
 
